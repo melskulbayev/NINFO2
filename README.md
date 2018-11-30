@@ -1,0 +1,2 @@
+# NINFO2
+Kulbayev15ВТК2LAB2VAR7
